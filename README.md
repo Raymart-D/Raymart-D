@@ -6,7 +6,8 @@
 
 💞️ I’m looking to collaborate on projects related to database optimization, web applications, or anything that involves creative problem-solving and innovation.
 
-📫 How to reach me: deguetaraymart1730@gmail.com
+📫 How to reach me: deguetaraymart1730@gmail.com, https://www.facebook.com/share/16abC9n4kw/,
+https://www.tiktok.com/@ray_martt?_t=ZS-8vYVRbLQOhT&_r=1
 
 😄 Pronouns: He/Him
 
